@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lixianhao0807
-- 👀 I’m interested in singanddance
+- 👀 I’m interested in sing dance
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me lixianhao1@qq.com
